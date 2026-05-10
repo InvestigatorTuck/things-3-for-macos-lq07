@@ -1,4 +1,4 @@
-
+Get the ultimate Things 3 for macOS addon with instant Things 3 for macOS Addon | export to PDF + custom shortcuts. Featuring export to PDF and custom shortcuts, it's the best
 
 
 
